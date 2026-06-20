@@ -1,3 +1,8 @@
-# i have no gender, my pronouns are they/them. # 
+# I have no gender, and I must pee! # 
 
-i made this repo because i thought it would be funny. feel free use it how you see fit
+non-binary/agender
+pronouns: they/them
+
+
+
+I made this repo because I thought it would be funny. feel free use it how you see fit
